@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VAGG060512MNLZRSA5
+VAGG060512MNLZRSA5
